@@ -17,7 +17,7 @@ I'm a **PGDM Marketing student** with a serious passion for all things digital s
 Beyond the textbooks, I've got over **two years of dynamic freelance experience in digital marketing** under my belt. Think of me as your friendly neighborhood digital alchemist, turning ideas into measurable results! 🧪💰
 
 <p align="center">
-  <img src="https://media.giphy.com/media/v1.GIF/3ornjQMfF9aX3kG6Cg/giphy.gif" width="100" alt="Working hard!">
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTZjMDliOTUycmdocGUxOTRzMWkzbzRwY2FqeTNiZTVlbWlwM2ZzaDk3NDZoZzVzcCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/Z0OFRnYBeJpQoX2EWx/giphy.gif" width="250" alt="Working hard!">
 </p>
 
 ---
@@ -34,7 +34,7 @@ I'm skilled in a spectrum of digital magic:
 ...and always, always focused on **driving measurable results!** My goal? To turn those digital efforts into tangible successes. 📈🎯
 
 <p align="center">
-  <img src="https://media.giphy.com/media/v1.GIF/3o85xr9ZtyoaljixwC/giphy.gif" width="120" alt="Results!">
+  <img src="https://media1.giphy.com/media/v1.Y2lkPTZjMDliOTUyOGpiOXI1OGF0NXJzejg2YTkyeWN6ZTMwMXo5YmgwMGlwbW56aWZ3dCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/AFpGh0Lor1o03GXxFq/giphy.gif" width="250" alt="Results!">
 </p>
 
 ---
@@ -48,7 +48,7 @@ Feel free to connect, collaborate, or just say hi! 😊
 ---
 
 <p align="center">
-  <img src="https://media.giphy.com/media/v1.GIF/l0IyhQ8eK6x5S6eQo/giphy.gif" width="150" alt="Let's connect!">
+  <img src="https://media3.giphy.com/media/v1.Y2lkPTZjMDliOTUyNTJnMXFrcHpyem9leWhocnI2d2pybnh4MWg5aXZuMnprbHkwcTNsOSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/khr2lS27v92PQPD3oa/giphy.gif" width="250" alt="Let's connect!">
 </p>
 
 <p align="center">
